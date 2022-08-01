@@ -10,5 +10,6 @@ Les castors dancent, les ours jouent au soccer
 Les pinguins blablabla
 
 ## -- Partie 2
-
+La nouvelle zealande est belle
+L'australie ausssi ... 
 
