@@ -7,6 +7,7 @@ Comme il fait beau de se ballader à venise ...
 Et de se teleporter à paris en oculus ...
 
 Les castors dancent, les ours jouent au soccer
+Les pinguins blablabla
 
 ## -- Partie 2
 
