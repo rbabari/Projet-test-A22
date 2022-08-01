@@ -10,5 +10,8 @@ Les castors dancent, les ours jouent au soccer
 Les pinguins font blablabla
 
 ## -- Partie 2
-
+La nouvelle zealande est belle
+L'australie ausssi ... 
+La france elle dance ... 
+ca rime aussi à rimouski ...
 
